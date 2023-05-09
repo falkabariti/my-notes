@@ -1,2 +1,2 @@
 # my-notes
-![Tux, the Linux mascot](./images/shutterstock_1071849443.jpg)
+![Tux, the Linux mascot](./images/IMG_1348.JPG)
