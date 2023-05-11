@@ -1,2 +1,5 @@
 # my-notes
 ![Tux, the Linux mascot](./images/IMG_1348.JPG)
+# Unleashing the Power of Multimedia: 23 Years of Experience at Your Service!  
+Hello, my name is **Farouq Al Kabarity**, and I am a multimedia specialist with 23 years of experience in the field. I was born in Aqaba, Jordan, and for the past 20 years, I have been residing in the UAE. With my extensive experience and expertise in multimedia, I have developed a keen eye for design, video production, and editing, which has enabled me to create engaging content across various platforms. I am passionate about my work and thrive in challenging environments that require innovative solutions to complex problems. Whether it's creating a new brand identity or designing a marketing campaign, I am committed to delivering the best results for my clients. I look forward to working with you and exploring how my skills and experience can help bring your vision to life.  
+##Thank you
